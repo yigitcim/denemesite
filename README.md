@@ -1,1 +1,1 @@
-instagram(yigit.oztass , aradıgımsungerbob
+instagram(yigit.oztass , aradıgımsungerbob)
